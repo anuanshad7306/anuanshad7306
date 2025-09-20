@@ -11,8 +11,6 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love turning complex problems into smart, automated solutions!
 
-- 📫 How to reach me **muhammadanshad32575@gmail.com**
-
 
 
 <!--horizontal divider(gradiant)-->
